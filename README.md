@@ -7,7 +7,7 @@
 
 
 
-ㅤㅤ⋆˚꩜｡ • *seen in osc spot or dw area* but *rarely everywhere*
+ㅤㅤ⋆˚꩜｡ • *drinking in the sunlight, you'll go crazy!*
 
 
 
