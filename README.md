@@ -8,6 +8,13 @@
 
 
 ㅤㅤ⋆˚꩜｡ • *drinking in the sunlight, you'll go crazy!*
+  
+     
+     
+ ㅤㅤㅤㅤㅤㅤㅤㅤ ────୨ৎ────
+
+
+            I'm only seen if I'm with my friends or in the osc spot. 
 
 
 
